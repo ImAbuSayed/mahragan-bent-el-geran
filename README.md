@@ -18,7 +18,10 @@
 
 ## Excerpt
 
-> [Clean lyric will be pushed here]
+> يا نور عيني في سكون الليل
+> قلبي ينادي من غير دليل
+> شوقي يزيد والنار في دمي
+> أنت غرامي وأنت حلمي
 > ...
 
 📄 **[View Full Lyrics →](./lyrics.txt)**
